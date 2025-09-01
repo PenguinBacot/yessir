@@ -1,0 +1,2 @@
+# yessir
+pengenalan dan pembiasaan 
