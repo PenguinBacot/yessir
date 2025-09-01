@@ -1,2 +1,2 @@
-# yessir
-pengenalan dan pembiasaan 
+# Intro
+Halo aku Rae
